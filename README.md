@@ -44,7 +44,4 @@ IAPP CIPT certification domains.
 
 
 
-I'm looking forward to collaborating on projects related to my area of interest, while also exploring others. Together we can do great things. Let's connect! :earth_africa:
-
-
 
